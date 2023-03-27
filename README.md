@@ -13,7 +13,7 @@ Apart from coding, I enjoy designing user interfaces for mobile and web apps. I 
 
 ## Get In Touch
 #### Instagram : [@krish.161](https://instagram.com/krish.161)<br>
-#### Telegram : [@krish.161](https://t.me/krish.161)<br>
+#### Telegram : [@krishh161](https://t.me/krishh161)<br>
 #### Spotify : [Profile](https://open.spotify.com/user/hz6uhnsqiftjeyurf359dxshx?si=563dcda79c864cbc)
 
 ## My Github Stats
